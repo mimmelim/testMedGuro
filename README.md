@@ -5,3 +5,4 @@ Jeg lager en mappe med assets...
 
 Test nr. 3
 
+får jeg lov å skrive hos deg??
